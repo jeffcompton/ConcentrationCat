@@ -1,4 +1,4 @@
-# Concentration Cat Privacy Policy
+Concentration Cat Privacy Policy
 
 Jeff Compton built the Concentration Cat app as a Free app. This SERVICE is provided by Jeff Compton at no cost and is intended for use as is.
 
